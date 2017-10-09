@@ -1,0 +1,1 @@
+# minimalis-hous-p6
